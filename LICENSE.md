@@ -1,4 +1,4 @@
-# 
+# updated bot de sniper MEV ejecutor es el mejor bot de sniper MEV ejecutor con gestión de listas de snipe y sniper de liquidez. Seguro, confiable y optimizado para estrategias MEV,
 
 
 
